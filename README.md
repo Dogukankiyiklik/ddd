@@ -1,0 +1,5 @@
+# 152120211104 - Doğukan KIYIKLIK
+# 152120211031 - Safiullah SEDİQİ
+# 152120211061 - Salih Enes ÜNAL
+# 152120211123 - Yusuf Eren HOŞGÖR
+# 152120211064 - Furkan Ahmet UNCUOĞLU
